@@ -36,7 +36,7 @@
 - 🥾 Hiking and exploring the outdoors.
 - 🐾 Spending time with animals of all kinds.
 - 🎬 Watching movies and discovering new favourites.
-- 🎮 Gaming, especially survival games!
+- 🎮 Gaming, especially survival and open-world games!
 
 ### Connect With Me
 
